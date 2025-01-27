@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CHI-UDEH519
-- 👀I'm interested in data analytics because it's all about transforming raw data into meaningful insights to make organisation make better decision#
+- 👀I'm interested in data analytics because it's all about transforming raw data into meaningful insights to make organisation make better decision###
 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
