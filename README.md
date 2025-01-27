@@ -12,4 +12,4 @@
 
 
 See Me On👉 [LINKEDIN](https://www.linkedin.com/in/chinenye-juliet-udeh-62a301217?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
-
+Email: julietudeh249@gmail.com
